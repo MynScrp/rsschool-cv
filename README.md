@@ -1,1 +1,1 @@
-https://mynscrp.github.io/rsschool-cv/cv
+https://mynscrp.github.io/rsschool-cv/
