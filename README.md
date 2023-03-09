@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Mynscrp.github.io/rsschool-cv/cv
